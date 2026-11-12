@@ -7,7 +7,7 @@
 
 ---
 
-> **Edición pública científica identificada EP-20261028-1** · 28 de octubre de 2026, España
+> **Edición pública científica identificada EP-20261028-1** ORCID 0009-0008-8003-1398· 28 de octubre de 2026, España
 >
 > Preparación documental y cálculo asistidos por Codex. La iniciativa, autoría declarada y dirección del programa corresponden al investigador. Esta edición contiene una exposición integrada, una continuación trabajada y el dossier académico original completo como cuerpo documental y archivo adjunto.
 
